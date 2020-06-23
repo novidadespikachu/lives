@@ -15,6 +15,7 @@
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/Y5bo0ZmmtZ8/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">#Fiqueemcasa #Cantecomigo #FlávioJosé #LIVE #ArraiádeSãoJoão</td></tr>
 
+
 <table style="width:100%"><tr><th><center><b> São João de Campina Em Casa (Elba Ramalho, Eliane, Luka Bass e mais) - 23/06 - às 17h </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/pmYs48yRNV0/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Circuito Brahma apresenta: Live Oficial do São João de Campina Grande/PB. Realização: Medow Entretenimento. Apoio: Prefeitura Municipal de Campina Grande/PB</td></tr>
