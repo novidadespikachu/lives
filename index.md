@@ -23,6 +23,10 @@
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/B98BM6FUYwk/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Música brasileira no rítmo do Ivo Meirelles #originalnalivedoivomeirelles #sambapoporiginal #ivomeirelles</td></tr>
 
+<table style="width:100%"><tr><th><center><b> Ivan Gadelha - 23/06 - às 17h30 </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/rHDo_MobIbE/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Arraiá do Gadelha live esquenta campina grande </td></tr>
+
 <table style="width:100%"><tr><th><center><b> Calcinha Preta - 23/06 - às 18h </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/FWP5MBKtj7w/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Live Calcinha Preta - São João In Casa #FiqueEmCasa e Cante #Comigo</td></tr>
@@ -30,6 +34,10 @@
 <table style="width:100%"><tr><th><center><b> Solange Almeida - 23/06 - às 19h </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/BnXQXsDJAyI/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Vem curtir aquele forró com Solagem Almeida e arrastar o pé na noite de São João no Arraial Danado de Bom da TV Jornal.</td></tr>
+
+<table style="width:100%"><tr><th><center><b> Ed Motta - 23/06 - às 19h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/H1s4NgzxRHs/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Em seu estilo, sem abrir mão da veia funk-soul, Ed Motta tritura influências que vão do jazz à música brasileira, das trilhas sonoras de Hollywood ao rock, da música clássica aos standards americanos, da bossa nova ao reggae. Nesta edição do #EmCasaComSesc, o cantor, compositor e instrumentista mostra a forma que suas canções ganham vida: no piano, dizendo não ao que ele considera "a ditadura das palavras" em canções. O “Edmottês” é uma maneira brincalhona de denominar uma música cantada que não tem letra. O repertório traz temas que o artista tem prazer em tocar – músicas que tocam no inconsciente, relembrando baladas nacionais e internacionais de grandes artistas – e os sucessos “Colombina”, “Manoel”, “Fora Da Lei”, “Baixo Rio” e “Vendaval” em suas versões acústicas.</td></tr>
 
 <table style="width:100%"><tr><th><center><b> Grupo Comprazer - 23/06 - às 20h </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/4YNrrGDQufo/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
@@ -49,9 +57,9 @@
 <tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Lives/Lives.png" alt="Addon Pikachu"></div></td></tr>
 </table>
 
-<a href="https://bit.ly/pikachufull">
+<div align="center"><a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y9zk36eq" alt="pikachu">
-</a>
+</a></div>
 <a href="https://bit.ly/novidadedocs">
 <img src="https://tinyurl.com/y9xs5l4t" alt="pikachu">
 </a>
@@ -82,9 +90,9 @@
 <a href="https://bit.ly/novidadeTV">
 <img src="https://tinyurl.com/ydbcnj3f" alt="pikachu">
 </a>
-<a href="https://bit.ly/pikachufull">
+<div align="center"><a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y72vpx8n" alt="pikachu">
-</a>
+</a></div>
 
 
 <!--Copias não serão toleradas-->
