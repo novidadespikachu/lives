@@ -53,6 +53,7 @@
 <tr><td align="justify">Arralaive do Alcymar</td></tr>
 
 
+
 # segunda-feira, 22 de junho de 2020
 <table style="width:100%"><tr><th><center><b> Area de lives pronta pra animar sua festa em casa com seu cantor favorito! - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Lives/Lives.png" alt="Addon Pikachu"></div></td></tr>
