@@ -12,7 +12,7 @@
 <tr><td align="justify">Targino Live Show I Canções de Luiz I #FiqueEmCasa e Cante #Comigo</td></tr>
 
 <table style="width:100%"><tr><th><center><b> Flávio José - 23/06 - às 17h </b></center></th></tr>
-<tr><td><div align="center"><img src="http://i.ytimg.com/vi/Y5bo0ZmmtZ8/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/F6Zwtka04sY/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">#Fiqueemcasa #Cantecomigo #FlávioJosé #LIVE #ArraiádeSãoJoão</td></tr>
 
 
