@@ -56,6 +56,8 @@
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/pt1ikYkFbis/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Pela primeira vez Supla (o verdadeiro champs papito) vai fazer um programa no seu canal de YouTube. O programa consiste em musica e entrevista. A estreia será com a Barbara Paz e na música ele próprio com sua poderosa banda. C mmon kid s!</td></tr>
 
+
+
 # terça-feira, 23 de junho de 2020 [PRÉ SÃO JOÃO!]
 
 
