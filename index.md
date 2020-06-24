@@ -3,9 +3,62 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
  
+ 
+ 
+ 
+# quarta-feira, 24 de junho de 2020 [FELIZ SÃO JOÃO!]
+<div align="center"><img src="https://media.giphy.com/media/Mx2gWJLiib3he/giphy.gif" alt="Addon Pikachu" width="300" height="300"></div>
+<table style="width:100%"><tr><th><center><b> Esquadrão do Rei - 24/06 - às 16h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/eYPkIqGDG3Y/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Resenha do Esquadrão. Live Sunset Beneficente.</td></tr>
+
+<table style="width:100%"><tr><th><center><b> São João de Campina Em Casa (Flávio José, Aduílio Mendes, Cascavel e mais) - 24/06 - às 17h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/kp16lcCfOzs/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Programação dia 24: Flávio José; Aduílio Mendes; Cascavel; Iohannes; Cavalo de Pau; Felipe Warley; Fabrício Rodrigues; Fabiano Guimarães. </td></tr>
+
+<table style="width:100%"><tr><th><center><b> Seu Maxixe - 24/06 - às 17h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/SpBwMHtt52I/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#saojoao #emcasa #sertanejo #fiqueemcasa #ficaemcasa #seumaxixe. São João do Maxixão tem modão, forró, licor e alegria.  Montem seus pares e bora Maxixar no melhor São João Online do mundo. </td></tr>
+
+<table style="width:100%"><tr><th><center><b> Aldemario Coelho - 24/06 - às 19h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/5UBoHXoQoEc/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">▶️ Mercantil Rodrigues AO VIVO com Adelmario Coelho</td></tr>
+
+<table style="width:100%"><tr><th><center><b> Vaneyse - 24/06 - às 19h30  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/FMYgwj441sI/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Mais uma vez quero convidar vocês para mais este encontro dia 24/06 às 19:30 horas. Esta live também faz parte do projeto #MaisPerto, da MK Network, vai ser maravilhoso! Não perca! </td></tr>
+
+<table style="width:100%"><tr><th><center><b> Chambinho Do Acordeon - 24/06 - às 19h30  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/rixNW2-YDxQ/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">QUARTA-FEIRA 24 ÁS 19:00 NOITE DE SÃO JOÃO. Marcelo Zabumba - David Simplicio Violão - Valdécio Triangulo</td></tr>
+
+<table style="width:100%"><tr><th><center><b> Israel & Rodolffo - 24/06 - às 20h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/g6aaOuto4TY/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#IsraelERodolffo #LiveLeve #IeRBrahmaLive - ARRAIÁ LIVE LEVE - 24.06.20 ÀS 20H00</td></tr>
+
+<table style="width:100%"><tr><th><center><b> Dorgival Dantas - 24/06 - às 20h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/YWZoalyKFLc/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Dorgival Dantas - São João Do Poeta - #LiveDorgivalDantas #FiqueEmCasa e Cante #Comigo</td></tr>
+
+<table style="width:100%"><tr><th><center><b> Zé Ricardo & Thiago - 24/06 - às 20h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/Gml-DMS2b38/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Arraiá dos Gordinhos - Zé Ricardo e Thiago l #FiqueEmCasa e Cante #Comigo</td></tr>
+
+<table style="width:100%"><tr><th><center><b> Fafá de Belém - 24/06 - às 20h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/2iwBUbf1EVY/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">No Dia de São João, Fafá de Belém comanda o Arraiá Atacadão! Na festança, não pode faltar comida boa! Por isso, Yoki e Kitano marcam presença!</td></tr>
+
+<table style="width:100%"><tr><th><center><b> Banda Seeway - 24/06 - às 20h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/LwSnSyfr18o/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Live São João da Seeway Eletrico 2 #FiqueEmCasaEcanteComigo</td></tr>
+
+<table style="width:100%"><tr><th><center><b> Supla - 24/06 - às 22h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/pt1ikYkFbis/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Pela primeira vez Supla (o verdadeiro champs papito) vai fazer um programa no seu canal de YouTube. O programa consiste em musica e entrevista. A estreia será com a Barbara Paz e na música ele próprio com sua poderosa banda. C mmon kid s!</td></tr>
+
 # terça-feira, 23 de junho de 2020 [PRÉ SÃO JOÃO!]
 
-<div align="center"><img src="https://media.giphy.com/media/Mx2gWJLiib3he/giphy.gif" alt="Addon Pikachu" width="300" height="300"></div>
+
  
 <table style="width:100%"><tr><th><center><b> Targino Gondim - 23/06 - às 16h </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/NbYDNHFp15k/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
