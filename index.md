@@ -4,6 +4,7 @@
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
  
  # quinta-feira, 25 de junho de 2020
+ 
 <table style="width:100%"><tr><th><center><b> Clara Martod - 25/06 às 16h  </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/p7Nnq8oTt0g/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Lounge da Martod 2 - Live Clara Martod</td></tr></table>
@@ -30,9 +31,8 @@
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/tzLQTVYIdAQ/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">LIVE #EMICIDA #FUSIONNEWRIVALS | #FiqueEmCasa e cante #Comigo</td></tr></table>
 
- 
- 
 # quarta-feira, 24 de junho de 2020 [FELIZ SÃO JOÃO!]
+
 <div align="center"><img src="https://media.giphy.com/media/Mx2gWJLiib3he/giphy.gif" alt="Addon Pikachu" width="300" height="300"></div>
 <table style="width:100%"><tr><th><center><b> Esquadrão do Rei - 24/06 - às 16h  </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/eYPkIqGDG3Y/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
@@ -82,13 +82,8 @@
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/pt1ikYkFbis/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Pela primeira vez Supla (o verdadeiro champs papito) vai fazer um programa no seu canal de YouTube. O programa consiste em musica e entrevista. A estreia será com a Barbara Paz e na música ele próprio com sua poderosa banda. C mmon kid s!</td></tr></table>
  
-
-
-
 # terça-feira, 23 de junho de 2020 [PRÉ SÃO JOÃO!]
 
-
- 
 <table style="width:100%"><tr><th><center><b> Targino Gondim - 23/06 - às 16h </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/NbYDNHFp15k/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Targino Live Show I Canções de Luiz I #FiqueEmCasa e Cante #Comigo</td></tr>
@@ -133,9 +128,7 @@
 <table style="width:100%"><tr><th><center><b> Alcymar Monteiro - 23/06 - às 20h </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/q6lft2Kw_bw/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Arralaive do Alcymar</td></tr>
-
-
-
+ 
 # segunda-feira, 22 de junho de 2020
 <table style="width:100%"><tr><th><center><b> Area de lives pronta pra animar sua festa em casa com seu cantor favorito! - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Lives/Lives.png" alt="Addon Pikachu"></div></td></tr>
