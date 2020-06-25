@@ -3,7 +3,33 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
  
- 
+ # quinta-feira, 25 de junho de 2020
+<table style="width:100%"><tr><th><center><b> Clara Martod - 25/06 às 16h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/p7Nnq8oTt0g /maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Lounge da Martod 2 - Live Clara Martod</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Bruna Fulô - 25/06 às 19h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/_scUoBJzSiY/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Live da cantora sertaneja Bruna Fulô #ficaemcasa</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> John Legend - 25/06 às 19h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/eGy64l9Yuuw/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">This is Bigger Love, visualized! A live virtual concert experience in collaboration with Wave. Tune in on Thursday, June 25 at 3pm PT / 6pm ET for a music experience you won’t forget! All proceeds benefit FreeAmerica, a multi-year campaign initiated to amplify the growing movement to end mass incarceration.</td></tr></table>
+<table style="width:100%"><tr><th><center><b> Festival São João (Elba Ramalho, Solange Almeida, Preta Gil e Dorgival Dantas) - 25/06 às 20h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/5BEsIkjp6FE/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Nesta quinta (25/06), a partir das 20h, Riachuelo apresenta #FestivalSãoJoãoLive com 4 grandes nomes que vão levar o clima das festas juninas para dentro da sua casa. Vai ter muita música, balancê, humor, conversê e até comidas típicas feitas pelos próprios artistas durante a live – tudo direto da casa deles.NOSSO LINE-UP ARRETADO: Elba Ramalho | Dorgival Dantas | Solange Almeida | Preta Gil</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Wilian Nascimento - 25/06 às 20h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/7j3nZ3v5-2Q/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Oi, gente! Está chegando a hora de aquecer os corações de todos os apaixonados e relembrar os grandes sucessos da música gospel em uma LIVE cheia de romance e paixão. Será no dia 25/06 às 20H!!!</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Rodrigo Teaser (Tributo ao Rei do Pop) - 25/06 às 20h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/TNxn4Vsm7GI/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Emicida - 25/06 às 21h  </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/tzLQTVYIdAQ/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">LIVE #EMICIDA #FUSIONNEWRIVALS | #FiqueEmCasa e cante #Comigo</td></tr></table>
+
  
  
 # quarta-feira, 24 de junho de 2020 [FELIZ SÃO JOÃO!]
