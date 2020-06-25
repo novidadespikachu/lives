@@ -5,7 +5,7 @@
  
  # quinta-feira, 25 de junho de 2020
 <table style="width:100%"><tr><th><center><b> Clara Martod - 25/06 às 16h  </b></center></th></tr>
-<tr><td><div align="center"><img src="http://i.ytimg.com/vi/p7Nnq8oTt0g /maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/p7Nnq8oTt0g/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Lounge da Martod 2 - Live Clara Martod</td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Bruna Fulô - 25/06 às 19h  </b></center></th></tr>
