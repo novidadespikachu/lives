@@ -105,10 +105,6 @@
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/rHDo_MobIbE/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Arraiá do Gadelha live esquenta campina grande </td></tr>
 
-<table style="width:100%"><tr><th><center><b> Calcinha Preta - 23/06 - às 18h </b></center></th></tr>
-<tr><td><div align="center"><img src="http://i.ytimg.com/vi/FWP5MBKtj7w/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align="justify">Live Calcinha Preta - São João In Casa #FiqueEmCasa e Cante #Comigo</td></tr>
-
 <table style="width:100%"><tr><th><center><b> Solange Almeida - 23/06 - às 19h </b></center></th></tr>
 <tr><td><div align="center"><img src="http://i.ytimg.com/vi/BnXQXsDJAyI/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td align="justify">Vem curtir aquele forró com Solagem Almeida e arrastar o pé na noite de São João no Arraial Danado de Bom da TV Jornal.</td></tr>
