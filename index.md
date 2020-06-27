@@ -3,6 +3,96 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
  
+# sábado, 27 de junho de 2020
+<table style="width:100%"><tr><th><center><b> Teresa Cristina - 27/06 às 15h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/LOlNXCbsNFE/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#OriginalnaLivedaTeresa </td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Frank Aguiar - 27/06 às 15h30 </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/fQvweOXc7dQ/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Ao longo desses anos, passamos por diversos estados levando muito arrasta pé e alegria. É muito bom ver cada canto do nosso país conservando a tradição! Então se prepare, porque tá chegando a MELHOR LIVE JUNINA DO BRASIL! Feita com muito amor e carinho pra vocês!</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Rick e Renner - 27/06 às 16h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/tlZQjULHHoE/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Rick & Renner - Live 3 "Em prol do Estado do Maranhão"</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Simone e Simaria - 27/06 às 16h30 </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/ZRkbzmHu2R8/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Chora não, coleguinha! Neste Sábado – dia 27, às 16h30 – é dia de live da #Yokermesse ;) A quermesse na casa da Simone e Simaria com transmissão ao vivo aqui no nosso canal e participação especial da nossa família linda. Fiquem ligados que vai rolar muita música ao vivo, correio elegante, casamento caipira, desafio da quadrilha e um montão de surpresas pra você curtir sua quermesse aí de casa.</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Junior Vianna - 27/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/J9nhlL23mhM/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Live Arraiá do Vianna </td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Klessinha A Baronesa - 27/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/oUwSLHR5zjE/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Arraiá da Baronesa - AO VIVO</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Jorge Vercillo - 27/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/4l3JxlOjyHM/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Diretamente de Balneário Camboriú. Jorge Vercillo - Live "Que Nem Maré" #FicaemCasa Cante#Comigo</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Luan Estilizado, Vicente Nery e Edson Lima - 27/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/wiuEJX31Eog/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Live - Luan Estilizado, Vicente Nery, Edson Lima - À Vontade | #FiqueEmCasa e Cante #Comigo</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Arlindinho - 27/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/WtLq1z31J4k/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Após muitos pedidos, Arlindinho faz sua primeira live com repertório que passa por uma visitação da obra de seu pai, Arlindo Cruz, e seus sucessos autorais.  Além disso, a live terá a participação de Xande de Pilares e Renato da Rocinha.</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> The Fevers - 27/06 às 18h30 </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/gA4ahGFzVgk/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Do analógico ao digital, o THE FEVERS realiza sua primeira live para ir ao encontro dos seus fãs e comemorar os 55 anos de carreira no dia 27 de junho, sábado, às 18h30. A banda, que estava na estrada com shows por todo o país quando o mundo parou com o isolamento social imposto pela pandemia, deseja reencontrar os seus fãs pelo canal no Youtube Os reis do baile garantem muitos sucessos nesta apresentação online, para celebrar, cantar, dançar e festejar os 55 anos de estrada e música boa. Com os cuidados necessários para garantir a segurança dos seus integrantes, a apresentação vai reunir o grupo formado por Liebert (baixo), Luiz Claudio (vocal), Rama (guitarra e violão), Otávio Henrique (bateria) e Claudio Mendes (teclados e vocal).</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Mastruz com Leite - 27/06 às 19h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/pA5d6Ag1hcU/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Live de São João com o Mastruz com Leite (Encerramento dos Festejos)</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Marcos e Belutti - 27/06 às 19h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/-zVaTCpJUzU/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#MarcoseBelutti #LiveMeB #MeBBrahmaLive</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Thullio Milionário - 27/06 às 19h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/X4DkFUpUhYc/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#ArraiáDoTM #Live #ThullioMilionário #FiqueEmCasa e Cante #Comigo #Live</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Cleber e Cauan  - 27/06 às 19h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/vW_F1632cbs/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#ResenhaDeSãoJoão #CleberECauan #SertanejoUniversitário</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Léo Estakazero, Tierry, Pablo e Tayrone - 27/06 às 19h15 </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/sfh8ztrZblM/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">A maior LIVE das galáxias. Dia 27 de junho tem o forró de Leo Estakazero, os hits de Tierry, a sofrência de Pablo e o romantismo de Tayrone! arraste os móveis da sala pra arrastar o pé e vamo beber que amar tá dificil!</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Os Barões da Pisadinha - 27/06 às 20h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/X7RGf37hc2Q/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">@Os Barões da Pisadinha ao vivo no @Filtr Brasil.</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Berg Gonzaga - 27/06 às 20h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/8-kpKPcP2iU/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Live - Arraiá do Berg</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Glória Groove - 27/06 às 20h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/AMIQlM5xEkk/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">GLORIA GROOVE - #LIVEdaGG | #FiqueEmCasa e Cante #Comigo</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Skank - 27/06 às 20h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/e1iR6bhBSdA/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Pela primeira vez em nossa carreira nos apresentaremos no formato Quarteto Acústico. Estamos preparando um repertório especial para essa apresentação inédita.</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Festival 360 (Hungria, Projota, Tribo da Periferia e mais) - 27/06 às 20h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/9z1ewrY-bUY/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#Festival360 - Hungria / Haikaiss / Projota / Tribo da Periferia</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Leonardo - 27/06 às 21h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/2hrZDDWMV48/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">LIVE LEONARDO - #CantoBeboeChoro | #LiveLeoComPrudential #FiqueEmCasa e Cante #Comigo</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Beatriz Rodarte - 27/06 às 21h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/JbbMYCbPsFg/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Beatriz Rodarte - Live Meu Lugar | #FiqueEmCasa e Cante #Comigo</td></tr></table>
+ 
+ 
 # quinta-feira, 25 de junho de 2020
  
 <table style="width:100%"><tr><th><center><b> Clara Martod - 25/06 às 16h  </b></center></th></tr>
