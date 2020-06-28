@@ -2,6 +2,64 @@
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
+
+# domingo, 28 de junho de 2020
+<table style="width:100%"><tr><th><center><b> César Menotti e Fabiano - 28/06 às 13h30 </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/-Vy_aHWyguw/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#ArraiaDosMenotti</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Diogo Silva - 28/06 às 16h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/PWrArB23heE/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#LiveDiogoSilva #NoArraiaDoMeuCoracao #DiogoSilva #FiqueEmCasa e Cante #Comigo Live do cantor Diogo Silva - dia 28 de Junho às 16hs</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Tiee - 28/06 às 16h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/01yqTe2S3xM/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Bem vindos a #LiveTiee2 com muito samba e pagode pra você. Clique em DEFINIR LEMBRETE pra não perder nenhum detalhe.  #Live #Samba #Pagode</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Live Será que Adivinha (Bressan e Zain) - 28/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/QU87D4SN2iE/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#LivedoBressan #Bressan #FiqueEmCasa e Cante #Comigo</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Gigantes do Samba (Raça Negra e Alexandre Pires) - 28/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/Jo_Tjh3liW4/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Live Gigantes do Samba | Raça Negra e Alexandre Pires - #FiqueEmCasa com #GigantesDoSamba</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Pabllo Vittar - 28/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/wmZmE58UdVQ/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Pabllo Vittar abraçou o espírito de Pride com uma experiência virtual internacional: "Pride With Pabllo & Friends". Um evento global para beneficiar o Trevor Project em parceria com Plus1 e Casa1 em parceria com Ame Digital. Patrocínio: Tinder, Submarino e Ame Digital.</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Solange Almeida - 28/06 às 17h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/9Ev5PJ8orUM/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#FiqueEmCasa, Cante #Comigo Forró Sol Presta Assim Live (Solange Almeida)</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Daniela Mercury - 28/06 às 18h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/tLortLu5Whk/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Uma Live para celebrar a diversidade e o orgulho de ser quem somos. Uma live para falar de liberdade. A cantora Daniela Mercury fará um grande show no dia que se comemora os 51 anos da Revolta de Stonewall, dia 28 de junho. Diretamente da casa dela, em Salvador, a artista promete muitas surpresas e muita alegria!</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Samba da Opinião - 28/06 às 18h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/e1_0RJwtwj8/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Live - Samba da Opinião - 28/06/20</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Allisson Rodrigues - 28/06 às 18h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/ZYb549trhIs/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Allisson Rodrigues - Um Novo Romance em Casa #ficaemcasa #AllissonRodrigues #sertanejo #romantico</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Banda Magníficos - 28/06 às 18h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/VKuspHJ98u4/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Magníficos - Live show Junina - Fique #EmCasa e Cante #Comigo</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Milton Nascimento - 28/06 às 18h30 </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/tQb7h-1Yp2U/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">#LiveMiltonNascimento A música é sempre um caminho para acalmar o coração. Estou com saudade de cantar para vocês, por isso no dia 28/06 vou fazer minha primeira live aqui no meu canal.</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> IMAGINASamba - 28/06 às 19h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/fVzGFvJfum0/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Pode ficar à vontade porque a terceira live do imagina vai ser nesse clima, com muita música boa, natureza e aquela curtição de lei. Aumenta o volume e se joga com a gente.</td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> As Bahias e a Cozinha Mineira - 28/06 às 21h </b></center></th></tr>
+<tr><td><div align="center"><img src="http://i.ytimg.com/vi/3OcaeiTaayc/maxresdefault.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align="justify">Amores, essa semana vamos fazer uma live bem especial no Dia do Orgulho LGBTQIA+! 💜🌈 Pra comemorar a nossa existência queremos cantar pra vocês.</td></tr></table>
+
  
 # sábado, 27 de junho de 2020
 <table style="width:100%"><tr><th><center><b> Teresa Cristina - 27/06 às 15h </b></center></th></tr>
